@@ -17,8 +17,7 @@
 
 ✿ Proship DNI ++ I Block Freely ˳ᴗ ᴗ)
   
-  ⤹ [Strawpage](https://tasteslikeoranges.straw.page/) 
- [Carrd](https://tasteslikeoranges.carrd.co/) ᛝ
+  ⤹ [Atabook](https://tasteslikeoranges.atabook.org/)  <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/9ea66a84-17c8-4580-b88b-b6b14d249f39" />  [Carrd](https://tasteslikeoranges.carrd.co/) ᛝ
  
    <img width="2048" height="82" alt="image" src="https://github.com/user-attachments/assets/f62941ac-79fe-4e0b-94d5-31c030036780" />
 
