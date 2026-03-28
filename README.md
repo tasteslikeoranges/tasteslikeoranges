@@ -15,7 +15,7 @@
    
   ◡◡ ND ᎖ 19 𓂂 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c127dc57-d233-4f83-9293-8ade1b20ee0e" />
 
-✿ Proship DNI ++ I Block Freely ˳ᴗ ᴗ)
+✿ I Block Freely ˳ᴗ ᴗ)
   
   ⤹ [Atabook](https://tasteslikeoranges.atabook.org/)  ᛝ
  
