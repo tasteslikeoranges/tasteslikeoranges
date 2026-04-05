@@ -16,7 +16,9 @@
   ◡◡ ND ᎖ 19 𓂂 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c127dc57-d233-4f83-9293-8ade1b20ee0e" />
 
 ✿ I Block Freely ˳ᴗ ᴗ) 
+
 ⋆ . Inspo = ✓ | Copy = Ask ⊹
+
   ⤹ [Atabook](https://tasteslikeoranges.atabook.org/)  ᛝ [Ext](https://rentry.co/tasteslikeoranges) ꒱꒱
  
 <img width="2048" height="82" alt="image" src="https://64.media.tumblr.com/c96be15ed98953079feef2c5358f5ea5/6bda34c768c44d0b-bb/s2048x3072/25b8804060824452ec9a269c9935df72eade3c65.pnj" />
