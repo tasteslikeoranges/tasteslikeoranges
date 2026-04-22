@@ -18,6 +18,8 @@
 ⋆ . Inspo = ✓ | Copy = Ask ⊹
 
   ⤹ [Atabook](https://tasteslikeoranges.atabook.org/)  ᛝ [Ext](https://rentry.co/tasteslikeoranges) ᛝ [Tutorials](https://tasteslikeoranges.straw.page/)꒱꒱
+
+  i dont know why my fucking github is broken and looks the way it does rn i'll fix it some day
  
 <img width="2048" height="82" alt="image" src="https://64.media.tumblr.com/c96be15ed98953079feef2c5358f5ea5/6bda34c768c44d0b-bb/s2048x3072/25b8804060824452ec9a269c9935df72eade3c65.pnj" />
 
