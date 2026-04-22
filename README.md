@@ -10,11 +10,9 @@
 
 
   
-  ꒰ He/Him <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/9db8d5b9e0eb3ef26aa05385dfc7c80c/125ef7c09c4b6808-3d/s75x75_c1/9c0939bc3e90d41d389cd7607d88f4c0b1788f59.gifv" />
- Gay Man ⚣ ꒱
+  ꒰ He/Him 🍊  Gay Man ⚣ ꒱
    
-  ◡◡ ND ᎖ 19 𓂂 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c127dc57-d233-4f83-9293-8ade1b20ee0e" />
-
+  ◡◡ ND ᎖ 19 𓂂
 ✿ I Block Freely ˳ᴗ ᴗ) 
 
 ⋆ . Inspo = ✓ | Copy = Ask ⊹
