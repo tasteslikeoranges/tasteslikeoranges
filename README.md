@@ -9,11 +9,11 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
-   He/Him , 19, Gay Man, Audhd
+ ८  He/Him ♡ 19 ♡ Gay Man ♡ Audhd  ꔫა 
    
-   Inspo = ✓ | Copy = Ask
+::        ꒰        Inspo = ✓ | Copy = Ask ⠀੭       ֹ  
    
- I Block Freely
+◠◠ I Block Freely Ꮺ
 
 ︶⊹︶︶୨୧︶︶⊹︶
 
