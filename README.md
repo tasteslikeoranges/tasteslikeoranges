@@ -10,6 +10,8 @@
 ︶⊹︶︶୨୧︶︶⊹︶
 
  ८  He/Him ♡ 19 ♡ Gay Man ♡ Audhd  ꔫა 
+
+ ୭  ˖ Deutsch / English Speaker ₎₎
    
 ::        ꒰        Inspo = ✓ | Copy = Ask ⠀੭       ֹ  
    
